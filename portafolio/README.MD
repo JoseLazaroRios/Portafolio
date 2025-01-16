@@ -1,0 +1,1 @@
+En este trabajo se desarrolla mi presentacion profesional, las habilidades y los proyectos realizados.
